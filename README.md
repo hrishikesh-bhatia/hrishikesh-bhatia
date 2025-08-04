@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Hrishikesh Bhatia a first year Delhi Technological University student
+- 👋 Hi, I’m Hrishikesh Bhatia a Second year Delhi Technological University student
 - 👀 I’m interested in Building new projects and turning them into business
 - 🌱 I’m currently learning to gain more knowledge and connect with people interested in tech entrepreneurship
 - 💞️ I’m looking to collaborate on building a project and making it into a company
